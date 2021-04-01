@@ -1,6 +1,9 @@
-aku berdiri seperti laki-laki  
+sungguh enak berdiri macam laki-laki  
 dunia pun terang oleh kata-kata  
-juga sakit, luka, dan suitan ini  
+grepe, suitan atau luka perasaan  
 hilang bekas seperti angin pagi  
+atau tercatat di termometer  
+atau sama terbukti di mata hukum
+
 dan di bawah kulit sendiri aku bisa tidur  
 dan di hidup sendiri aku bisa berharap
