@@ -1,15 +1,11 @@
-aku menganggur di hutan purba  
-
-orangutan liar di lapangan kerja  
-namun menjadi tamu di mimpiku  
-
-sepanjang kemarau ia kemari  
-mengutip arang-arang api  
-dan seperti malaikat, dia suapkan karangan itu  
-kepadaku yang menggapai-gapai air di matanya  
-apa maknanya di buku mimpi?  
-terang kami buntu, saling hilang dalam geli  
-membangunkan mesin di hati.  
-
-hari itu aku takut bangun  
-dan pulang jadi orang  
+aku menganggur di hutan  
+orangutan liar di kota  
+aku menanam modal, dia menuai badai  
+rasanya ingin berteman tapi dia di koran  
+dan aku cuma bermimpi di puisi  
+memegang kedua tangannya  
+bertukar yang indah-indah empat mata  
+dia pun tersenyum dan aku ikut  
+karena buntu tak mengerti  
+katanya, mungkin, pulanglah!  
+di rumah, aku takut jadi orang
