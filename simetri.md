@@ -1,9 +1,10 @@
 kantor ini begitu tinggi  
 langit tumben sedang biru
 
-kantukku meneror seperti atasan.
+kantukku menggedor seperti atasan.
 dengan siapa siang nanti merokok?  
-aku tiba-tiba emosional dan ingin terbang  
+aku tiba-tiba emosional dan ingin terbang
+
 sedangkan di luar mara bahaya?
 
 pembabatan hutan - gaji tipisku dipangkas  
