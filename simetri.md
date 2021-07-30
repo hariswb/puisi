@@ -1,14 +1,10 @@
-kantor ini begitu tinggi  
-langit tumben sedang biru
-
-kantukku menggedor seperti atasan.
-dengan siapa siang nanti merokok?  
-aku tiba-tiba emosional dan ingin terbang
-
-sedangkan di luar mara bahaya?
-
-pembabatan hutan - gaji tipisku dipangkas  
-bencana, pengungsi disembunyikan berita - laba perusahaan
-
-mengapa sepiku dan banjir semuara?
-mengapa kemarau dan cemasku berujung sama?
+kebosanan hanyalah bonus
+dari penghisapan kantor
+seperti sesak kabut asap 
+di pembabatan hutan
+setiap pohon seperti pemangkasan gaji
+di lubuk kesepian pribadi bertanya makna
+terkasih yang ikut menanggung hutang
+antara bencana dan laba perusahaan
+seperti pengungsi yang disembunyikan berita
+kecemasan ternyata bisa seberat kemarau 

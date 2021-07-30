@@ -5,5 +5,5 @@ habis guna, hasrat itu hanyut
 bersama air di dalam cuaca  
 bening mendarah daging.
 
-andai bisa kulahap itu plastik  
-seperti menjilat ludah sendiri
+andai bisa tanggung itu plastik  
+seperti ludah sendiri

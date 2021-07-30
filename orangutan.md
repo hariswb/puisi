@@ -1,16 +1,11 @@
 orangutan liar di kota  
 aku menganggur di hutan  
 di iklim investasi  
-aku menanam modal  
-dan dia menuai badai
-
-baru saat itu terjadi  
-muncul rasa ingin berteman  
-meski sudah dia mati di koran  
-aku pun melamun di puisi  
+aku yang menanam modal  
+dan dia yang menuai badai
+pagi ini sudah mati di koran  
+dan aku pun melamun di puisi  
 memegang kedua tangannya  
 bertukar yang indah-indah empat mata  
-dia tersenyum dan aku ikut  
+dia tersenyum dan aku spontan ikut  
 karena aku buntu tak mengerti
-
-...
