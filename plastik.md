@@ -6,4 +6,4 @@ bersama air di dalam cuaca
 bening mendarah daging.
 
 andai aku bisa tanggung itu plastik  
-seperti ludah sendiri
+seperti ringan ludah sendiri

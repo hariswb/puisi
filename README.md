@@ -1,1 +1,1 @@
-Ini repositori didedikasikan untuk puisi-puisi saya karena sejak beberapa bulan ini banyak bekerja di terminal, alangkah baiknya puisi-puisi juga didokumentasikan perubahannya pake version control ini. Semoga konsisten lah ya.
+Ini repositori didedikasikan untuk puisi-puisi karena sejak beberapa bulan ini banyak bekerja di terminal, alangkah baiknya puisi-puisi juga didokumentasikan perubahannya pake version control ini. Semoga konsisten lah ya.
