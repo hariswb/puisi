@@ -1,10 +1,7 @@
-
-sebab aku menunggak sewa kontrakan
-kutemukan jalan ke hutan 
-yang kabarnya hilang 
+karena aku menunggak sewa kontrakan
+kutemukan jalan ke hutan hilang
 di kebun sawit, galian tambang
-di sempit taman kota
 dia tidak lagi punya rumah 
+seperti harimau kalah di hukum rimba
 
-harimau kalah di hukum rimba
 

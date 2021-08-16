@@ -1,8 +1,7 @@
 menurut perintah presiden
-tubuhku diizinkan untuk digali
-aku diperkenankan berbaring
-mendengarkannya dengan sopan santun
-dari kuping kanan 
-dan darah mengalir di kuping kiri
-dan hari ini juga menurut polisi
-aku resmi mengamankan diri sendiri
+tubuhku adalah zona pembangunan
+dan aku diperkenankan telentang
+mendengarkannya dari kuping kanan 
+dan mengalirkan darah di kuping kiri
+lalu polisi di kepalaku menyelamati,
+"Anda resmi mengamankan diri sendiri!"
