@@ -1,9 +1,17 @@
-sungguh enak berdiri macam laki-laki  
-dunia pun terang oleh kata-kata  
-grepe, suitan atau luka perasaan  
-hilang bekas seperti angin pagi  
-tidak tercatat di termometer  
-dan gelap di mata hukum
+hei, brother
+kau lihat istri-istri dan gadis-gadismu berlarian
+membersihkan kekerasan dari diri mereka
+mengerjakan hak dan keadilan untuk mereka
 
-dan di bawah kulit sendiri aku bisa tidur  
-dan di hidup sendiri aku bisa berharap
+hei, brother
+jika kau rasa ngilu di burungmu
+jangan murung dan geram
+diam dan perhatikan dari dadamu
+seekor ular menggeliat mati karena tersinggung
+biarkan! karena kini giliranmu 
+keluarlah dari biji kecilmu
+dan bergembiralah
+
+gembiralah, brother!
+rayakan hari itu dengan menari
+...
