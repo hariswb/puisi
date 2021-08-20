@@ -9,4 +9,5 @@ berikut pohon-pohonnya di pembangunan
 dan aku termangu, menguburkannya di puisi  
 menggenggam kedua tangannya dan berharap  
 bertukar yang indah-indah empat mata  
-yang mati tetap diam dan aku buntu tak mengerti
+nammun yang mati tetap diam dan aku ikut
+karena buntu tak mengerti
