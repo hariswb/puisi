@@ -1,7 +1,8 @@
 menurut perintah presiden
 tubuhku adalah zona pembangunan
-dan aku diperkenankan telentang
+dan aku diperkenankan telentang sopan
 mendengarkannya dari kuping kanan 
 dan mengalirkan darah di kuping kiri
-ditutup polisi di kepalaku menyelamati,
+
+polisi di kepalaku santun menyelamati,
 aku resmi mengamankan diri sendiri
