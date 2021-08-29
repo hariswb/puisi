@@ -1,12 +1,13 @@
-karena menunggak sewa kontrakan
-aku temukan jalan ke hutan hilang
+bulan terakhir bayar kosan
+berlangit-langit kelelawar hidup
+tak masalah nanti pun pindah
+nanti pun lupa
 
-dia tidak punya rumah
-di bebas lahan kebun sawit, 
-lazuardi kristal kolam tambang
-dan tata rapi taman kota
+kepada pada sprei buluk, toples isi semut
+piring dan buku disimpan satu meja
+nanti mungkin punya rak masing-masing
+di kosan baru
 
-dia tidak punya masa depan
-tidak seperti aku yang bisa menjamin
-kepada ibu kos besok akan ada
-
+aku yang melamun ke cermin dan jendela
+aku mengingat sudut-sudut enak untuk bersandar
+membuatku mengira aku punya rumah
