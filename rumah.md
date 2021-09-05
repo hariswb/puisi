@@ -1,13 +1,11 @@
-bulan terakhir bayar kosan
-berlangit-langit kelelawar hidup
-tak masalah nanti pun pindah
-nanti pun lupa
+aku bayar kosan
+rapi susunan perabot ringkas
+piring sendok plastik
+senang selemari dengan baju
 
-kepada pada sprei buluk, toples isi semut
-piring dan buku disimpan satu meja
-nanti mungkin punya rak masing-masing
-di kosan baru
-
-aku yang melamun ke cermin dan jendela
-aku mengingat sudut-sudut enak untuk bersandar
-membuatku mengira aku punya rumah
+peristiwa di daun jendela 
+yang ini atau sembilan yang lampau
+makin murung makin gampang pindah
+karenan kenangan makan ongkos 
+misalnya rindu pulang
+tak terjangkau seharga rumah
