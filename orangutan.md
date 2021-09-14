@@ -12,4 +12,4 @@ dan aku termangu, menguburkannya di puisi
 menggenggam kedua tangannya dan berharap  
 bertukar yang indah-indah empat mata  
 dan di mimpi si mati pun tetap diam 
-aku ikut diam karena buntu tak mengerti
+dan aku buntu tak mengerti
