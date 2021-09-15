@@ -3,9 +3,9 @@ rapi susunan perabot ringkas
 piring sendok plastik
 senang selemari dengan baju
 
-peristiwa di daun jendela 
-yang ini atau sembilan yang lampau
-makin murung makin gampang pindah
+tawa dan ciuman tamu di jendela 
+yang kini atau sembilan yang lampau
+kian murung kian mudah pergi
 karenan kenangan makan ongkos 
-misalnya rindu pulang
+setidaknya rindu pulang
 tak terjangkau seharga rumah
