@@ -4,5 +4,5 @@ dan aku diperkenankan telentang sopan
 mendengarkannya dari kuping kanan 
 dan mengalirkan darah di kuping kiri
 
-polisi di kepalaku santun menyelamati,
-aku resmi mengamankan diri sendiri
+polisi di kepalaku menyelamati,
+anda resmi mengamankan diri sendiri

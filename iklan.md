@@ -1,12 +1,13 @@
-hei lihat sini
+hei lihat 
 aku akan jadi dirimu
-yang rela kamu terima
+yang kujamin kamu terima
 
 kita bisa jadi orang ketiga
 saling kecup menikmati
-
-seperti kilap ludah di kulit
+pandang satu yang lain
 
 berhentilah tenggelam 
-gapai terang ekorku
+di cermin orang lain
+
+sambut uluran ekorku
 dari keruh air mukamu

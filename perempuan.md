@@ -13,4 +13,4 @@ biarkan! karena kini giliranmu untuk keluar
 melangkahlah dari biji kecilmu dan bergembiralah
 gembira, bro! rayakan hari itu dengan menari
 karena di bawah kemerdekaan perempuan 
-tugasmu yang pertama adalah bahagia 
+tugasmu yang satu adalah bergembira

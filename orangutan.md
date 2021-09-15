@@ -1,15 +1,14 @@
+aku menganggur
+temukan jalan ke hutan  
 orangutan liar di kota  
-aku menganggur di hutan  
-
-di iklim investasi  
-aku yang menanam modal  
-dia yang menuai badai
+menuai badai di iklim investasi  
 
 pagi ini dia mati di koran
-berikut pohon rumahnya di pembangunan
+pepohonannya gundul di pembangunan
 dan aku termangu, menguburkannya di puisi  
 
 menggenggam kedua tangannya dan berharap  
 bertukar yang indah-indah empat mata  
-dan di mimpi si mati pun tetap diam 
+namun di mimpi si mati tetap diam 
 dan aku buntu tak mengerti
+dan aku takut bangun jadi orang
