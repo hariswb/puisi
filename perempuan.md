@@ -1,4 +1,4 @@
-####Nasihat kepada Bro
+####Hal Paling Maskulin
 
 hei, bro!
 kau lihat istri-istrimu 
@@ -18,4 +18,4 @@ sebab kini giliranmu untuk keluar
 melangkahlah dari biji kecilmu dan bergembiralah
 gembira, bro! rayakan hari itu dengan menari
 sebab di halaman kemerdekaan perempuan 
-tugasmu yang satu adalah bergembira
+tugasmu yang pertama adalah bergembira

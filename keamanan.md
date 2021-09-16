@@ -1,13 +1,13 @@
 ####Keamanan
 
-menurut perintah presiden
-tubuhku adalah kawasan tambang
+menurut saran presiden
+tubuhku adalah kawasan pertumbuhan
 
 dia izinkan aku telentang sopan 
 menjadi gunung
-mendengarkannya dari kuping kanan 
+mendengarkannya lewat kuping kanan 
 menjadi sungai
-mengalirkan darah di kuping kiri
+mengalirkan darah dari kuping kiri
 
 polisi di kepalaku menyelamati,
 anda resmi mengamankan diri sendiri

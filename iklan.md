@@ -7,7 +7,7 @@ yang kujamin kamu banget
 
 kita bisa jadi orang ketiga
 saling kecup menikmati
-gairah bibirku juga bibirmu
+merah bibirku juga manis bibirmu
 
 berhentilah tenggelam 
 bercermin orang lain
