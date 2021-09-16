@@ -1,4 +1,4 @@
-(catatan pandemi)
+####Catatan atas Pandemi
 
 kematian tanpa pemerintah
 adalah kabar buruk yang wajar

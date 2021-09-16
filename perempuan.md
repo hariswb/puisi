@@ -1,10 +1,11 @@
+####Nasihat kepada Bro
+
 hei, bro
 kau lihat istri-istrimu dan gadis-gadismu berlarian
 membersihkan kekerasan dari diri mereka
-mengerjakan hak dan keadilan untuk mereka
+mengerjakan hak dan keadilan sendiri
 
-hei, bro
-kau rasa ngilu di burungmu
+jika kau rasa ngilu di burungmu
 jangan kecut dan geram
 diam dan perhatikan dari dadamu
 seekor lintah menggeliat mati tersinggung

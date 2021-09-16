@@ -1,12 +1,14 @@
+####Simetri
+
 di lantai kantor tinggi
 penghisapan itu berbentuk kebosanan 
 yang dibuka beterbangan kecemasan
 
 kian nyata dalam pemangkasan gaji 
 dirumahkan ke sesak kabut asap
-pembebasan lahan, penebangan pohon
+penebangan pohon, pembebasan lahan
 
-antara mara bahaya dan laba perusahaan
+di antara mara bahaya dan laba perusahaan
 banjir dan sunyiku sehulu semuara 
 
 aku sampingkan kerja dan berdoa

@@ -1,13 +1,16 @@
+####Iklan
+
 hei lihat 
-aku akan jadi dirimu
-yang kujamin kamu terima
+aku jadi dirimu
+yang bisa kamu terima
+yang kujamin kamu banget
 
 kita bisa jadi orang ketiga
 saling kecup menikmati
-pandang satu yang lain
+gairah bibirku juga bibirmu
 
 berhentilah tenggelam 
-di cermin orang lain
+bercermin orang lain
 
-sambut uluran ekorku
+sambut uluran buntutku
 dari keruh air mukamu

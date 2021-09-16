@@ -1,11 +1,14 @@
-aku bayar kosan
+####Rumah
+
+awal bulan aku rela bayar kosan
 rapi susunan perabot ringkas
 piring sendok plastik
 senang selemari dengan baju
 
-tawa dan ciuman tamu di jendela 
-yang kini atau sembilan yang lampau
-kian murung kian mudah pergi
-karenan kenangan makan ongkos 
-setidaknya rindu pulang
+tawa tamu-tamu di daun jendela 
+kini atau sembilan yang lampau
+bikin murung bikin mudah pergi
+
+karena kenangan makan ongkos 
+misalnya rindu pulang
 tak terjangkau seharga rumah
