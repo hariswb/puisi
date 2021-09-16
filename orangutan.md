@@ -1,14 +1,16 @@
 aku menganggur
-temukan jalan ke hutan  
+temukan jalan ke hutan gundul  
 orangutan liar di kota  
 menuai badai di iklim investasi  
 
 pagi ini dia mati di koran
-pepohonannya gundul di pembangunan
-dan aku termangu, menguburkannya di puisi  
+pohonnya tumbang di pembebasan lahan
+aku termangu, menguburkannya di puisi  
 
-menggenggam kedua tangannya dan berharap  
+menggenggam kedua tangannya berharap  
 bertukar yang indah-indah empat mata  
-namun di mimpi si mati tetap diam 
+namun di mimpi si mati juga bungkam 
 dan aku buntu tak mengerti
-dan aku takut bangun jadi orang
+
+aku takut pulang
+dan bangun jadi orang
