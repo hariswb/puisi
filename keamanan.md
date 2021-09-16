@@ -1,11 +1,13 @@
 ####Keamanan
 
 menurut perintah presiden
-tubuhku adalah kawasan ekonomi
+tubuhku adalah kawasan tambang
 
-aku diizinkan telentang sopan dan santun
-untuk mendengarkannya dari kuping kanan 
-dan mengalirkan darah di kuping kiri
+dia izinkan aku telentang sopan 
+menjadi gunung
+mendengarkannya dari kuping kanan 
+menjadi sungai
+mengalirkan darah di kuping kiri
 
 polisi di kepalaku menyelamati,
 anda resmi mengamankan diri sendiri

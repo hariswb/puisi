@@ -11,8 +11,8 @@ aku termangu, menguburkannya di puisi
 
 menggenggam kedua tangannya berharap  
 bertukar yang indah-indah empat mata  
-namun di mimpi si mati juga bungkam 
-dan aku buntu tak mengerti
+namun di mimpi ini si mati tak mengabulkan 
 
+aku buntu tak mengerti
 aku takut pulang
 dan bangun jadi orang

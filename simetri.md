@@ -13,4 +13,4 @@ banjir dan sunyiku sehulu semuara
 
 aku sampingkan kerja dan berdoa
 keselamatan bagi pengungsi 
-yang hilang disembunyikan berita
+yang hilang disembunyikan media
