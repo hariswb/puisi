@@ -12,8 +12,7 @@ jika kau rasa ngilu di burungmu
 jangan kecut dan geram
 diam dan perhatikan dari dadamu
 seekor lintah menggeliat mati tersinggung
-tahan dan biarkan! 
-sebab kini giliranmu untuk keluar 
+tahan dan biarkan sebab kini giliranmu untuk keluar 
 
 melangkahlah dari biji kecilmu dan bergembiralah
 gembira, bro! rayakan hari itu dengan menari
