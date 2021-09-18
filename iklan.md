@@ -1,13 +1,13 @@
 ####Iklan
 
-hei lihat 
+hei, lihat! 
 aku jadi dirimu
 yang bisa kamu terima
 yang kujamin kamu banget
 
-kita bisa jadi orang ketiga
-saling kecup menikmati
-merah bibirku sama manis bibirmu
+kita berbaju orang ketiga
+seperti dulu narkissos
+saling telan menikmati 
 
 berhentilah tenggelam 
 bercermin orang lain

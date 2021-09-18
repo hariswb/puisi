@@ -1,11 +1,13 @@
+bersama Muammal N.M.
+
 ####Plastik
 
-aku meneguk kesegaran  
+aku menenggak kesegaran  
 penyu tersedak botolnya
 
 habis guna, hasrat itu hanyut  
-bersama air di dalam cuaca  
+seikat air ke dalam cuaca  
 bening mendarah daging
 
 andai bisa kutanggung itu plastik  
-seperti ringan ludah sendiri
+seperti ludah sendiri

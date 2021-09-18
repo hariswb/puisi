@@ -1,13 +1,11 @@
 ####Keamanan
 
-menurut saran presiden
+menurut himbauan presiden
 tubuhku adalah kawasan pertumbuhan
 
-dia izinkan aku telentang sopan 
-menjadi gunung
-mendengarkannya lewat kuping kanan 
-menjadi sungai
-mengalirkan darah dari kuping kiri
+dia izinkan aku telentang, sopan dan santun
+menjadi gunung, menerimanya lewat kuping kanan 
+menjadi sungai, mengalirkan darah dari kuping kiri
 
-polisi di kepalaku menyelamati,
-anda resmi mengamankan diri sendiri
+polisi di kepalaku bahagia
+selamat, anda resmi amankan diri sendiri

@@ -1,12 +1,11 @@
 ####Simetri
 
 di lantai kantor tinggi
-penghisapan itu berbentuk kebosanan 
+penghisapan itu segepok kebosanan 
 yang dibuka beterbangan kecemasan
 
-kian nyata dalam pemangkasan gaji 
-dirumahkan ke sesak kabut asap
-penebangan pohon, pembebasan lahan
+sayatan lambung pemangkasan gaji 
+senyata keras pohon ditebang 
 
 di antara mara bahaya dan laba perusahaan
 banjir dan sunyiku sehulu semuara 
