@@ -3,7 +3,7 @@
 aku menganggur
 temukan jalan ke hutan gundul  
 orangutan liar di kota  
-tersapu badai iklim investasi  
+tersapu iklim investasi  
 
 pagi ini dia mati di koran
 rumahnya tumbang di pembebasan lahan

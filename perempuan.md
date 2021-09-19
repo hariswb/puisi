@@ -4,7 +4,7 @@ hei, bro!
 kau lihat istri-istrimu dan gadis-gadismu 
 berbondong-bondong riang ke jalanan
 membersihkan kekerasan dari kulit mereka
-merawat hak dan menata ulang keadilan  
+merawat hak dan merombak keadilan  
 tepat di hati kita
 
 hei, bro!

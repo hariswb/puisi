@@ -5,7 +5,7 @@ penghisapan itu segepok kebosanan
 yang dibuka beterbangan kecemasan
 
 sayatan lambung pemangkasan gaji 
-senyata keras pohon ditebang 
+senyata keras tebangan pohon 
 
 di antara mara bahaya dan laba perusahaan
 banjir dan sunyiku sehulu semuara 
