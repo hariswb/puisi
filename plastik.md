@@ -1,4 +1,3 @@
-bersama Muammal N.M.
 ####Plastik
 
 aku menenggak kesegaran  
