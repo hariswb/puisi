@@ -1,15 +1,16 @@
 ####Simetri
 
-di lantai kantor tinggi
-penghisapan itu segepok kebosanan 
-yang dibuka beterbangan kecemasan
+di kantor aku mengetik
+segepok kebosanan per lembar
+dibuka beterbangan kecemasan
 
-sayatan lambung pemangkasan gaji 
-senyata keras tebangan pohon 
+sayatan lambung pemangkasan gaji
+senyata keras tebangan pohon
 
 di antara mara bahaya dan laba perusahaan
-banjir dan sunyiku sehulu semuara 
+banjir dan sunyiku sehulu semuara
 
-aku sampingkan kerja dan berdoa
-keselamatan bagi pengungsi 
-yang hilang disembunyikan media
+aku sampingkan kerja, membalikkan
+kedua telapak tangan dan berdoa
+keselamatanlah bagi pengungsi
+yang hilang disembunyikan berita
