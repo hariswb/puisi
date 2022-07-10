@@ -1,17 +1,24 @@
-####Orang
+####Hujan Panas
 
-aku menganggur
-temukan jalan ke hutan gundul  
-orangutan liar di kota  
-tersapu iklim investasi  
+senin pagi, hujan panas
+aku menghela kabar
+tentang seekor orangutan
+tewas menghirup desakan api
+api yang sama beratnya
+dengan api yang ikut kunyalakan
+dengan kerja jadi orang
 
-pagi ini dia mati di koran
-rumahnya tumbang di pembebasan lahan
-aku termangu, menguburkannya di puisi  
+lahan putih, hujan panas
+aku menggelar pemakaman
+dengan terang sembunyi-sembunyi
+untuk pucat hatiku sudah
+sedingin teman menutup pintu
 
-menggenggam kedua tangannya berharap  
-bertukar yang indah-indah empat mata  
-namun di mimpi si mati pun tetap diam 
+bekas angin, hujan panas
+kedalaman kubur, kecerahan hari
+seperti tepat waktu
+memberi berkat atas lupa
 
-aku buntu tak mengerti
-aku takut pulang dan bangun jadi orang
+senin pagi, hujan panas
+maka kini mesin menyala
+jadi orang, aku terima
